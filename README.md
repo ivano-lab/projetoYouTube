@@ -1,4 +1,4 @@
-# Alô, vocês!
+# Alô, vocês! :neckbeard:
 
 ## Antes de mais nada...
 
